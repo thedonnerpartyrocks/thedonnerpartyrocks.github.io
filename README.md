@@ -4,7 +4,7 @@
 
 ## Tour Dates Coming Soon!
 
-# Contact us at thedonnerpartyrocks@gmail.com
+# Contact us at <thedonnerpartyrocks@gmail.com>
 
 <!--
 ## Welcome to GitHub Pages
