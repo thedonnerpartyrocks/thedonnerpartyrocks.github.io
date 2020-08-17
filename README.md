@@ -1,6 +1,6 @@
 ### The Donner Party
 ## A rockabilly experience like none other
-![Donner Party](abbydonnerlogo.jpg)
+![Donner Party](abbydonnerlogo.png)
 
 ## Appearing at The Wine Cafe in Mankato, MN on August 29, 2020.
 ## See the invitation at [The Donner Party](https://www.facebook.com/events/395461224752694/) Facebook page
