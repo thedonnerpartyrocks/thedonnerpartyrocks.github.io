@@ -1,10 +1,12 @@
 ### The Donner Party
 ## A rockabilly experience like none other
-![Donner Party](donnerlogo.jpg)
+![Donner Party](abbydonnerlogo.jpg)
 
-## Tour Dates Coming Soon!
+## Appearing at The Wine Cafe in Mankato, MN on August 29, 2020.
+## See the invitation at [The Donner Party](https://www.facebook.com/events/395461224752694/) Facebook page
 
 # Contact us at <thedonnerpartyrocks@gmail.com>
+# Logo by ![Abby Daleki](www.abbydaleki.com)
 
 <!--
 ## Welcome to GitHub Pages
