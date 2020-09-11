@@ -3,7 +3,12 @@
 ![Donner Party](abbydonnerlogo.png)
 
 ## Thanks to those who came to The Wine Cafe in Mankato, MN on August 29, 2020. We loved playing for you!
-![WineCafe](wincafe.jpg)
+![WineCafe](winecafe.jpg)
+
+## We'll be appearing at The Wine Cafe in Mankato, MN from 6-8:30 pm on Saturday, September 19, 2020.
+
+## Come see us at Music on the Steps(https://statestreetnewulm.org/music-on-the-steps/) in New Ulm, MN on October 3rd.
+
 ## See all upcoming events at [The Donner Party](https://www.facebook.com/events/395461224752694/) Facebook page
 
 # Contact us at <thedonnerpartyrocks@gmail.com>
