@@ -12,7 +12,7 @@
 ## See all upcoming events at [The Donner Party](https://www.facebook.com/events/395461224752694/) Facebook page
 
 # Contact us at <thedonnerpartyrocks@gmail.com>
-# Logo by ![Abby Daleki]<www.abbydaleki.com>
+# Logo by ![Abby Daleki](www.abbydaleki.com>)
 
 <!--
 ## Welcome to GitHub Pages
