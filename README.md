@@ -4,10 +4,7 @@
 
 
 
-<!--## We'll be appearing at The Wine Cafe in Mankato, MN from 6-8:30 pm on Saturday, September 19, 2020.-->
-
-<!--## Come see us at [Music on the Steps](https://statestreetnewulm.org/music-on-the-steps/) in New Ulm, MN on October 3rd.-->
-###[Check out The Donner Party Christmas Party Party!](https://fb.watch/2msibpNPHZ/)
+### [Don't miss out on The Donner Party Christmas Party Party!](https://fb.watch/2msibpNPHZ/)
 
 ## Check out [The Donner Party](https://www.facebook.com/events/395461224752694/) Facebook page for information about our upcoming LiveStream.
 ![WineCafe](winecafe.jpg)
