@@ -2,7 +2,7 @@
 ## A rockabilly experience like none other
 ![Donner Party](abbydonnerlogo.png)
 
-## Thanks to those who came to The Wine Cafe in Mankato, MN on August 29, 2020. We loved playing for you!
+[comment:] ## Thanks to those who came to The Wine Cafe in Mankato, MN on August 29, 2020. We loved playing for you!
 ![WineCafe](winecafe.jpg)
 
 ## We'll be appearing at The Wine Cafe in Mankato, MN from 6-8:30 pm on Saturday, September 19, 2020.
