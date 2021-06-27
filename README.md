@@ -10,7 +10,7 @@
 
 ### If you missed the livestream, you can still see [The Donner Party Christmas Party Party!](https://www.youtube.com/watch?v=iRwR2ySIA-g&t=1s)
 
-![WineCafe](winecafe.jpg)
+<center>![Busking in New Ulm, MN](donnerNewulm(1).jpg)</center>
 # Contact us at <thedonnerpartyrocks@gmail.com>
 # Logo by [Abby Daleki](www.abbydaleki.com>)
 
