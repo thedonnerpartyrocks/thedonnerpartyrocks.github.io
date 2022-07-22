@@ -2,9 +2,7 @@
 ## A rockabilly experience like none other
 ![Donner Party](abbydonnerlogo.png)
 
-## We'll be appearing at [The Corner Bar](https://www.facebook.com/Corner-Bar-WatervilleMN-100240383404414/) in Waterville, MN at 6:30pm on July 2, 2021
-
-## Come check us out at the [Waseca County Fair](https://www.wasecacountyfreefair.com/) from 12-3pm on Sunday, July 18.
+<!-- ## Come check us out at the [Waseca County Fair](https://www.wasecacountyfreefair.com/) from 12-3pm on Sunday, July 18. -->
 
 ## See all upcoming events at [The Donner Party](https://www.facebook.com/events/395461224752694/) Facebook page
 
