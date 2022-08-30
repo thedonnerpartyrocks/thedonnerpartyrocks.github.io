@@ -2,16 +2,24 @@
 ## A rockabilly experience like none other
 ![Donner Party](abbydonnerlogo.png)
 
-<!-- ## Come check us out at the [Waseca County Fair](https://www.wasecacountyfreefair.com/) from 12-3pm on Sunday, July 18. -->
+<<<<<<< HEAD
+## Thanks to those who came to The Wine Cafe in Mankato, MN. We loved playing for you!
+![WineCafe](winecafe.jpg)
 
-## See all upcoming events at [The Donner Party](https://www.facebook.com/events/395461224752694/) Facebook page
+## We'll be appearing at [Whit Wort Brewing](https://www.whitwortbrewing.com/) in Gibbon, MN from 7-9 pm on Thursday, September 8, 2022.
+
+## Come see us at the [North Mankato Farmer's Market ](hhttps://www.northmankato.com/farmers-market) from 4-6 pm on Monday, September 12, 2022.
+
+## We'll be appearing at [The Wine Cafe] (https://www.facebook.com/winecafe.bar) in Mankato, MN From 7-9 om on October 4, 2022.
+
+=======
+## See all upcoming events at [The Donner Party](https://www.facebook.com/thedonnerpartyrocks Facebook page)
 
 ### If you missed the livestream, you can still see [The Donner Party Christmas Party Party!](https://www.youtube.com/watch?v=iRwR2ySIA-g&t=1s)
 
 ![Busking in New Ulm, MN](Newulm.jpeg)
 # Contact us at <thedonnerpartyrocks@gmail.com>
 # Logo by [Abby Daleki](www.abbydaleki.com>)
-
 <!--
 ## Welcome to GitHub Pages
 
