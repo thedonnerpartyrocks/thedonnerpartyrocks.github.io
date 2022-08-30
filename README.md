@@ -2,8 +2,6 @@
 ## A rockabilly experience like none other
 ![Donner Party](abbydonnerlogo.png)
 
-<<<<<<< HEAD
-## Thanks to those who came to The Wine Cafe in Mankato, MN. We loved playing for you!
 ![WineCafe](winecafe.jpg)
 
 ## We'll be appearing at [Whit Wort Brewing](https://www.whitwortbrewing.com/) in Gibbon, MN from 7-9 pm on Thursday, September 8, 2022.
