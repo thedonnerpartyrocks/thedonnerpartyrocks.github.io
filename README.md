@@ -10,6 +10,8 @@
 
 ## We'll be appearing at [The Wine Cafe](https://www.facebook.com/winecafe.bar) in Mankato, MN From 7-9 om on October 4, 2022.
 
+## One more time at [Whit Wort Brewing](https://www.whitwortbrewing.com/) in Gibbon, MN from 7-9 pm on Thursday, November 10, 2022.
+
 =======
 ## See all upcoming events at [The Donner Party](https://www.facebook.com/thedonnerpartyrocks Facebook page)
 
