@@ -4,14 +4,9 @@
 
 ![WineCafe](winecafe.jpg)
 
-## We'll be appearing at [Whit Wort Brewing](https://www.whitwortbrewing.com/) in Gibbon, MN from 7-9 pm on Thursday, September 8, 2022.
+## We'll be appearing at [Whit Wort Brewing](https://www.whitwortbrewing.com/) in Gibbon, MN from 8-10 pm on Saturday, April 8, 2023.
 
-## Come see us at the [North Mankato Farmer's Market ](https://www.northmankato.com/farmers-market) from 4-6 pm on Monday, September 12, 2022.
-
-## We'll be appearing at [The Wine Cafe](https://www.facebook.com/winecafe.bar) in Mankato, MN From 7-9 om on October 4, 2022.
-
-## One more time at [Whit Wort Brewing](https://www.whitwortbrewing.com/) in Gibbon, MN from 7-9 pm on Thursday, November 10, 2022.
-
+## Come see us with Angie Anderson at [The Coffee Hag](https://www.facebook.com/thecoffeehag) in Mankato, MN from 12-2 pm on Sunday, April 23, 2023.
 =======
 ## See all upcoming events at [The Donner Party](https://www.facebook.com/thedonnerpartyrocks Facebook page)
 
