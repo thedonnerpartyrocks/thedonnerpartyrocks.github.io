@@ -15,7 +15,7 @@
 
 ![Mule](mule.jpg)
 # Contact us at <thedonnerpartyrocks@gmail.com>
-# Logo by [Abby Daleki](www.abbydaleki.com>)
+# Logo by [Abby Daleki](www.abbydaleki.com)
 <!--
 ## Welcome to GitHub Pages
 
