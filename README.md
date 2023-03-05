@@ -1,11 +1,13 @@
 ### The Donner Party
-## A rockabilly experience like none other
+## A classic country experience like none other
 ![Donner Party](abbydonnerlogo.png)
 
 ![Busking in New Ulm, MN](Newulm.jpeg)
 
 
 ## We'll be appearing at [Whit Wort Brewing](https://www.whitwortbrewing.com/) in Gibbon, MN from 8-10 pm on Saturday, April 8, 2023.
+
+## Great tunes and great drinks at [The Flame](https://www.facebook.com/theflamebarandgrill/) in St. Peter, MN from 7-10 pm on Saturday, April 22, 2023.
 
 ## Come see us with Angie Anderson at [The Coffee Hag](https://www.facebook.com/thecoffeehag) in Mankato, MN from 12-2 pm on Sunday, April 23, 2023.
 =======
