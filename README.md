@@ -11,7 +11,7 @@
 
 ## Come see us with Angie Anderson at [The Coffee Hag](https://www.facebook.com/thecoffeehag) in Mankato, MN from 12-2 pm on Sunday, April 23, 2023.
 =======
-## See all upcoming events at [The Donner Party](https://www.facebook.com/thedonnerpartyrocks Facebook page)
+## See all upcoming events at [The Donner Party](https://www.facebook.com/thedonnerpartyrocks) Facebook page.
 
 ### If you missed the livestream, you can still see [The Donner Party Christmas Party Party!](https://www.youtube.com/watch?v=iRwR2ySIA-g&t=1s)
 
