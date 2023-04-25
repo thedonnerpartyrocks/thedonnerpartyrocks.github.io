@@ -12,6 +12,8 @@
 ## Come see us with Angie Anderson at [The Coffee Hag](https://www.facebook.com/thecoffeehag) in Mankato, MN from 12-2 pm on Sunday, April 23, 2023.
 
 ## It's our third year at the [Waseca County Free Fair](https://www.wasecacountyfreefair.com/). We'll be playing the lunchtime show on Friday, July 14, 2023.
+
+## Spend your Labor Day weekend with us at [Patrick's](https://patricksfood.com/) in Saint Peter, MN. We'll be your Sunday afternoon entertainment from 4-7 pm on Sunday, September 3rd.
 =======
 ## See all upcoming events at [The Donner Party](https://www.facebook.com/thedonnerpartyrocks) Facebook page.
 
