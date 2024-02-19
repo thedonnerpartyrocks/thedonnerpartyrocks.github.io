@@ -8,6 +8,8 @@
 
 ## [Whit Wort Brewing](https://www.whitwortbrewing.com/) 8-10 pm on Friday, February 23, 2024.
 
+##[Paddlefish Brewing Co.](https://www.paddlefishbrewing.com/) 6-9 on on Friday, April 12, 2024.
+
 ## [Westwood Marina](https://www.westwoodmarina.com/)  6-9 pm on Saturday, May 18, 2024.
 
 ## [Waseca County Free Fair](https://www.wasecacountyfreefair.com/). 1:30-3:30 pm on Friday, July 12, 2024.
