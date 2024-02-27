@@ -8,9 +8,9 @@
 
 ## [Whit Wort Brewing](https://www.whitwortbrewing.com/) 8-10 pm on Friday, February 23, 2024.
 
-##[Paddlefish Brewing Co.](https://www.paddlefishbrewing.com/) 6-9 on on Friday, April 12, 2024.
+## [Paddlefish Brewing Co.](https://www.paddlefishbrewing.com/) 1-4 on on Sunday, April 21, 2024.
 
-##[Patrick's on Third](https://patricksfood.com/) 4-7 pm on Sunday, April 21, 2024.
+<!--## [Patrick's on Third](https://patricksfood.com/) 4-7 pm on Sunday, April 21, 2024.-->
 
 ## [Westwood Marina](https://www.westwoodmarina.com/)  6-9 pm on Saturday, May 18, 2024.
 
