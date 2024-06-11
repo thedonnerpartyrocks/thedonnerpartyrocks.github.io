@@ -16,6 +16,11 @@
 
 ## [Waseca County Free Fair](https://www.wasecacountyfreefair.com/). 1:30-3:30 pm on Friday, July 12, 2024.
 
+##[Henderson Classic Car Roll-In](https://www.hendersonrollin.com/). 5:00-8:00 pm on Tuesday, July 30, 2024.
+
+## [Paddlefish Brewing Co.](https://www.paddlefishbrewing.com/) 6-9 pm on on Friday, August 9, 2024.
+
+
 
 
 
