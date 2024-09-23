@@ -1,5 +1,5 @@
 ### The Donner Party
-## Playing the roots of classic country 
+## Classic country you can sink your teeth into
 ![Donner Party](abbydonnerlogo.png)
 
 ![Busking in New Ulm, MN](Newulm.jpeg)
@@ -20,6 +20,9 @@
 
 ## [Paddlefish Brewing Co.](https://www.paddlefishbrewing.com/) 6-9 pm on on Friday, August 9, 2024.
 
+## [The Flame](https://patricksfood.com/) 6-9 pm on Friday, October 18, 2024.
+
+## [Patrick's on Third](https://patricksfood.com/) 4-7 pm on Sunday, October 27, 2024.
 
 
 
