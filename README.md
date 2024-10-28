@@ -20,9 +20,11 @@
 
 ## [Paddlefish Brewing Co.](https://www.paddlefishbrewing.com/) 6-9 pm on on Friday, August 9, 2024.
 
-## [The Flame](https://patricksfood.com/) 6-9 pm on Friday, October 18, 2024.
+## [The Flame](https://www.facebook.com/theflamebarandgrill/) 6-9 pm on Friday, October 18, 2024.
 
 ## [Patrick's on Third](https://patricksfood.com/) 4-7 pm on Sunday, October 27, 2024.
+
+## [The Flame](https://www.facebook.com/theflamebarandgrill/) 6-9 pm on Friday, February 21, 2024
 
 
 
