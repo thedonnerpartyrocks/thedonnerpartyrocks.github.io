@@ -4,9 +4,9 @@
 
 ![Busking in New Ulm, MN](Newulm.jpeg)
 
-## Here's our schedule for 2024
+## Here's our schedule for 2025
 
-## [Whit Wort Brewing](https://www.whitwortbrewing.com/) 8-10 pm on Friday, February 23, 2024.
+<!--## [Whit Wort Brewing](https://www.whitwortbrewing.com/) 8-10 pm on Friday, February 23, 2024.
 
 ## [Paddlefish Brewing Co.](https://www.paddlefishbrewing.com/) 1-4 on on Sunday, April 21, 2024.
 
@@ -22,9 +22,11 @@
 
 ## [The Flame](https://www.facebook.com/theflamebarandgrill/) 6-9 pm on Friday, October 18, 2024.
 
-## [Patrick's on Third](https://patricksfood.com/) 4-7 pm on Sunday, October 27, 2024.
+## [Patrick's on Third](https://patricksfood.com/) 4-7 pm on Sunday, October 27, 2024. -->
 
-## [The Flame](https://www.facebook.com/theflamebarandgrill/) 6-9 pm on Friday, February 21, 2024
+## [The Flame](https://www.facebook.com/theflamebarandgrill/) 6-9 pm on Friday, February 21, 2025
+
+## [Westwood Marina](https://www.westwoodmarina.com/)  4-7 pm on Monday, September 1, 2025.
 
 
 
