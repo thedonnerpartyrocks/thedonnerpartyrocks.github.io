@@ -2,7 +2,9 @@
 ## Classic country you can sink your teeth into
 ![Donner Party](abbydonnerlogo.png)
 
-![Busking in New Ulm, MN](Newulm.jpeg)
+<iframe src="https://www.facebook.com/plugins/video.php?height=314&href=https%3A%2F%2Fwww.facebook.com%2FKCHKNewprague%2Fvideos%2F990386125852097%2F&show_text=false&width=560&t=0" width="560" height="314" style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowfullscreen="true" allow="autoplay; clipboard-write; encrypted-media; picture-in-picture; web-share" allowFullScreen="true"></iframe>
+
+
 
 ## Here's our schedule for 2025
 
@@ -26,6 +28,10 @@
 
 ## [The Flame](https://www.facebook.com/theflamebarandgrill/) 6-9 pm on Friday, February 21, 2025
 
+##[Patrick's on Third](https://patricksfood.com/) 4-7 pm on Sunday, March 9, 2025.
+
+## [Waseca County Free Fair](https://www.wasecacountyfreefair.com/). 1:30-3:30 pm on Friday, July 11, 2025.
+
 ## [Westwood Marina](https://www.westwoodmarina.com/)  4-7 pm on Monday, September 1, 2025.
 
 
@@ -36,6 +42,7 @@
 ## See all upcoming events at [The Donner Party](https://www.facebook.com/thedonnerpartyrocks) Facebook page.
 
 ### If you missed the livestream, you can still see [The Donner Party Christmas Party Party!](https://www.youtube.com/watch?v=iRwR2ySIA-g&t=1s)
+![Busking in New Ulm, MN](Newulm.jpeg)
 
 ![Mule](mule.jpg)
 # Contact us at <thedonnerpartyrocks@gmail.com>
