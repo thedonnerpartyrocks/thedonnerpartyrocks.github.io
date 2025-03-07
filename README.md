@@ -2,7 +2,7 @@
 ## Classic country you can sink your teeth into
 ![Donner Party](abbydonnerlogo.png)
 
-You can listen to our recent perforance on [![KCHK radio 95.5 New Prague](KCHK.png)](https://www.facebook.com/share/v/1EHFwNXLmd/)
+You can listen to our recent performance on KCHK radio 95.5 New Prague [![KCHK](KCHK.png)](https://www.facebook.com/share/v/1EHFwNXLmd/)
 
 
 ## Here's our schedule for 2025
