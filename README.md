@@ -3,8 +3,13 @@
 ![Donner Party](abbydonnerlogo.png)
 
 You can listen to our recent performance on KCHK radio 95.5 New Prague [![KCHK](KCHK.png)](https://www.facebook.com/share/v/1EHFwNXLmd/)
+## Our first album is ready! Click the audio below to hear our newest songs.
 
-[Hastings Cutoff](https://gabalpha.github.io/read-audio/?p=Hastings Cutoff MASTER 06-24-2025.mp3)
+[Hastings Cutoff](https://gabalpha.github.io/read-audio/?p=https://thedonnerpartyrocks.github.io/Hastings Cutoff MASTER 06-24-2025.mp3)
+
+
+https://github.com/user-attachments/assets/9bd4e4e9-c60b-4e78-8960-ae18563a0796
+
 
 ## Here's our schedule for 2025
 
