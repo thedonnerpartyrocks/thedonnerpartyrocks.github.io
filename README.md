@@ -5,10 +5,25 @@
 You can listen to our recent performance on KCHK radio 95.5 New Prague [![KCHK](KCHK.png)](https://www.facebook.com/share/v/1EHFwNXLmd/)
 ## Our first album is ready! Click the audio below to hear our newest songs.
 
-[Hastings Cutoff](https://gabalpha.github.io/read-audio/?p=https://thedonnerpartyrocks.github.io/Hastings Cutoff MASTER 06-24-2025.mp3)
 
 
-https://github.com/user-attachments/assets/9bd4e4e9-c60b-4e78-8960-ae18563a0796
+https://github.com/user-attachments/assets/29e6658f-3a51-4ed1-9c7c-6fc00cedd62b
+
+
+
+https://github.com/user-attachments/assets/21e47023-f525-45ec-a520-1eef933334bc
+
+
+
+https://github.com/user-attachments/assets/96a10d14-6940-4c4a-81ba-d1930df3d988
+
+
+
+https://github.com/user-attachments/assets/41e7a0ec-a4a8-49ca-b025-97a11373efb5
+
+
+
+https://github.com/user-attachments/assets/c503b295-a16b-4f56-979a-f93b6f013da9
 
 
 ## Here's our schedule for 2025
