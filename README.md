@@ -5,7 +5,7 @@
 You can listen to our recent performance on KCHK radio 95.5 New Prague [![KCHK](KCHK.png)](https://www.facebook.com/share/v/1EHFwNXLmd/)
 ## Our first album is ready! Click the audio below to hear our newest songs.
 
-[All They Needed Was Talent](https://gabalpha.github.io/read-audio/?p=https://archive.org/serve/TimeTraxMD/01.%20Music%2000.mp3)
+[All They Needed Was Talent](https://gabalpha.github.io/read-audio/?p=https://github.com/thedonnerpartyrocks/thedonnerpartyrocks.github.io/raw/refs/heads/master/%20All%20They%20Needed%20Was%20Talent%20MASTER%2006-24-2025.mp3)]
 
 
 ## Here's our schedule for 2025
