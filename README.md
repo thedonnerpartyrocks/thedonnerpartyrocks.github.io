@@ -5,36 +5,7 @@
 You can listen to our recent performance on KCHK radio 95.5 New Prague [![KCHK](KCHK.png)](https://www.facebook.com/share/v/1EHFwNXLmd/)
 ## Our first album is ready! Click the audio below to hear our newest songs.
 
-
-
-https://github.com/user-attachments/assets/29e6658f-3a51-4ed1-9c7c-6fc00cedd62b
-
-
-
-https://github.com/user-attachments/assets/21e47023-f525-45ec-a520-1eef933334bc
-
-
-
-https://github.com/user-attachments/assets/96a10d14-6940-4c4a-81ba-d1930df3d988
-
-
-
-https://github.com/user-attachments/assets/41e7a0ec-a4a8-49ca-b025-97a11373efb5
-
-
-
-
-https://github.com/user-attachments/assets/653f58bc-e1d7-4ab1-8e0f-9a508cae994f
-
-
-
-https://github.com/user-attachments/assets/34b4c678-ba4b-488b-8f6e-c88763bee730
-
-
-
-
-https://github.com/user-attachments/assets/05978c78-d8de-4560-8c8d-40f0b93321ab
-
+[All They Needed Was Talent](https://gabalpha.github.io/read-audio/?p=https://archive.org/serve/TimeTraxMD/01.%20Music%2000.mp3)
 
 
 ## Here's our schedule for 2025
