@@ -27,13 +27,16 @@ You can listen to our recent performance on KCHK radio 95.5 New Prague [![KCHK](
 
 ## [The Flame](https://www.facebook.com/theflamebarandgrill/) 6-9 pm on Friday, February 21, 2025
 
-## [Patrick's on Third](https://patricksfood.com/) 4-7 pm on Sunday, March 9, 2025.-->
+## [Patrick's on Third](https://patricksfood.com/) 4-7 pm on Sunday, March 9, 2025.
 
-## [Resistance Art Festival](https://www.mobilize.us/stpetermankato/event/785256/?referring_vol=2516134&share_context=dashboard-event-details&sharer_role=2) 11:00 am - 1:00 pm on Saturday, June 28, 2025.
+## [Resistance Art Festival](https://www.mobilize.us/stpetermankato/event/785256/?referring_vol=2516134&share_context=dashboard-event-details&sharer_role=2) 11:00 am - 1:00 pm on Saturday, June 28, 2025.-->
 
 ## [Waseca County Free Fair](https://www.wasecacountyfreefair.com/). 1:30-3:30 pm on Friday, July 11, 2025.
 
+## [Patrick's on Third](https://patricksfood.com/) 4-7 pm on Sunday, August 10, 2025. 
+
 ## [Westwood Marina](https://www.westwoodmarina.com/)  4-7 pm on Monday, September 1, 2025.
+
 
 
 
