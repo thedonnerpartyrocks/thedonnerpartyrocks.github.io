@@ -5,7 +5,21 @@
 You can listen to our recent performance on KCHK radio 95.5 New Prague [![KCHK](KCHK.png)](https://www.facebook.com/share/v/1EHFwNXLmd/)
 ## Our first album is ready! Click the audio below to hear our newest songs.
 
-[All They Needed Was Talent](https://gabalpha.github.io/read-audio/?p=https://github.com/thedonnerpartyrocks/thedonnerpartyrocks.github.io/raw/refs/heads/master/%20All%20They%20Needed%20Was%20Talent%20MASTER%2006-24-2025.mp3)]
+[All They Needed Was Talent](https://gabalpha.github.io/read-audio/?p=https://github.com/thedonnerpartyrocks/thedonnerpartyrocks.github.io/raw/refs/heads/master/%20All%20They%20Needed%20Was%20Talent%20MASTER%2006-24-2025.mp3)
+
+[$20 Drunk](https://gabalpha.github.io/read-audio/?p=https://github.com/thedonnerpartyrocks/thedonnerpartyrocks.github.io/raw/refs/heads/master/$20%20Drunk%20MASTER%2006-24-2025.mp3)
+
+[Bottom Heavy Betty](https://gabalpha.github.io/read-audio/?p=hhttps://github.com/thedonnerpartyrocks/thedonnerpartyrocks.github.io/raw/refs/heads/master/Bottom%20Heavy%20Betty%20MASTER%2006-24-2025.mp3)
+
+[Cash on the Barrelhead](https://gabalpha.github.io/read-audio/?p=https://github.com/thedonnerpartyrocks/thedonnerpartyrocks.github.io/raw/refs/heads/master/Cash%20On%20the%20Barrelhead%20MASTER%2006-24-2025.mp3)
+
+[Hastings Cutoff](https://gabalpha.github.io/read-audio/?p=https://github.com/thedonnerpartyrocks/thedonnerpartyrocks.github.io/raw/refs/heads/master/Hastings%20Cutoff%20MASTER%2006-24-2025.mp3)
+
+[It Weren't Like That in the Songs](https://gabalpha.github.io/read-audio/?p=https://github.com/thedonnerpartyrocks/thedonnerpartyrocks.github.io/raw/refs/heads/master/It%20Weren_t%20Like%20That%20In%20the%20Songs%20MASTER%2006-24-2025.mp3)
+
+[Lucille](https://gabalpha.github.io/read-audio/?p=https://github.com/thedonnerpartyrocks/thedonnerpartyrocks.github.io/raw/refs/heads/master/Lucille%20MASTER%2006-24-2025.mp3)
+
+[Red Cadillac and a Black Moustache](https://gabalpha.github.io/read-audio/?p=https://github.com/thedonnerpartyrocks/thedonnerpartyrocks.github.io/raw/refs/heads/master/Red%20Cadillac%20MASTER%2006-24-2025.mp3)
 
 
 ## Here's our schedule for 2025
