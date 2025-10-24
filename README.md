@@ -22,7 +22,7 @@ You can listen to our recent performance on KCHK radio 95.5 New Prague [![KCHK](
 [Red Cadillac and a Black Moustache](https://gabalpha.github.io/read-audio/?p=https://github.com/thedonnerpartyrocks/thedonnerpartyrocks.github.io/raw/refs/heads/master/Red%20Cadillac%20MASTER%2006-24-2025.mp3)
 
 
-## Here's our schedule for 2025
+## We are currently booking for 2026. Contact thedonnerpartyrocks@gmail.com for more information!
 
 <!--## [Whit Wort Brewing](https://www.whitwortbrewing.com/) 8-10 pm on Friday, February 23, 2024.
 
@@ -46,13 +46,13 @@ You can listen to our recent performance on KCHK radio 95.5 New Prague [![KCHK](
 
 ## [Patrick's on Third](https://patricksfood.com/) 4-7 pm on Sunday, March 9, 2025.
 
-## [Resistance Art Festival](https://www.mobilize.us/stpetermankato/event/785256/?referring_vol=2516134&share_context=dashboard-event-details&sharer_role=2) 11:00 am - 1:00 pm on Saturday, June 28, 2025.-->
+## [Resistance Art Festival](https://www.mobilize.us/stpetermankato/event/785256/?referring_vol=2516134&share_context=dashboard-event-details&sharer_role=2) 11:00 am - 1:00 pm on Saturday, June 28, 2025.
 
 ## [Waseca County Free Fair](https://www.wasecacountyfreefair.com/). 1:30-3:30 pm on Friday, July 11, 2025.
 
 ## [Patrick's on Third](https://patricksfood.com/) 4-7 pm on Sunday, August 10, 2025. 
 
-## [Westwood Marina](https://www.westwoodmarina.com/)  4-7 pm on Monday, September 1, 2025.
+## [Westwood Marina](https://www.westwoodmarina.com/)  4-7 pm on Monday, September 1, 2025.-->
 
 
 
