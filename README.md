@@ -2,7 +2,7 @@
 ## Classic country you can sink your teeth into
 ![Donner Party](abbydonnerlogo.png)
 
-##We are playing at the [Twin Rivers Arts Festival](https://twinriversartsfestival.com/) from 2-3 pom on Sunday, November 30.
+## Come see us at the [Twin Rivers Arts Festival](https://twinriversartsfestival.com/) from 2-3 pom on Sunday, November 30.
 
 You can listen to our recent performance on KCHK radio 95.5 New Prague [![KCHK](KCHK.png)](https://www.facebook.com/share/v/1EHFwNXLmd/)
 ## Our first album is ready! Click the audio below to hear our newest songs.
