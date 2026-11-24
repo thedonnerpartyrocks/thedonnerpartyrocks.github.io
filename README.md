@@ -2,7 +2,7 @@
 ## Classic country you can sink your teeth into
 ![Donner Party](abbydonnerlogo.png)
 
-## Come see us at the [Twin Rivers Arts Festival](https://twinriversartsfestival.com/) from 2-3 pom on Sunday, November 30.
+## Come see us at the [Twin Rivers Arts Festival](https://twinriversartsfestival.com/) from 3:00-4:15 pm on Saturday, November 28.
 
 You can listen to our recent performance on KCHK radio 95.5 New Prague [![KCHK](KCHK.png)](https://www.facebook.com/share/v/1EHFwNXLmd/)
 ## Our first album is ready! Click the audio below to hear our newest songs.
@@ -24,7 +24,7 @@ You can listen to our recent performance on KCHK radio 95.5 New Prague [![KCHK](
 [Red Cadillac and a Black Moustache](https://gabalpha.github.io/read-audio/?p=https://github.com/thedonnerpartyrocks/thedonnerpartyrocks.github.io/raw/refs/heads/master/Red%20Cadillac%20MASTER%2006-24-2025.mp3)
 
 
-## We are currently booking for 2026. Contact thedonnerpartyrocks@gmail.com for more information!
+## We are currently booking for 2027. Contact thedonnerpartyrocks@gmail.com for more information!
 
 <!--## [Whit Wort Brewing](https://www.whitwortbrewing.com/) 8-10 pm on Friday, February 23, 2024.
 
